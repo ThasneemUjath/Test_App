@@ -1,3 +1,2 @@
-polachi ponga ... 
-
-Its okie water melon star bruh..
+neenga sonnathu joke kidayathu ... athu oru joke nu ellarum flex pannitu irukkinga 
+                  
